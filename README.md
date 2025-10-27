@@ -59,7 +59,7 @@ It reminds us that even fleeting moments can leave lasting impacts.
 
 ### Image
 
-![Drawing Closer Poster](https://upload.wikimedia.org/wikipedia/en/d/drawingcloserposter.jpg)
+![Drawing Closer Poster](p27270429_i_h10_aa)
 
 ---
 
